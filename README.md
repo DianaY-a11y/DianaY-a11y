@@ -1,3 +1,2 @@
 # Hi 🌟 I'm Diana Yue 
-
-A Short Bio: ...
+:)
